@@ -1,3 +1,3 @@
-# References
+# Reference List
 
-* octocat 1 😈
+* my best friend!
